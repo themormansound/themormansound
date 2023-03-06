@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @themormansound
-- 👀 I’m interested in saliva, cookies and tetrahydrofuran based clothing
+- 👀 I’m interested in low PH saliva, lentil cookies and tetrahydrofuran based clothing
 - 🌱 I’m currently learning to run a multinational business
 - 💞️ I’m looking to collaborate on Fishcakes, artificial sweeteners and seriously dense metal work.
 
